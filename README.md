@@ -11,4 +11,4 @@
 4. Promotion
 5. Leave
 
-<p <i for full package and demo contact g3send@gmail.com
+<i for full package and demo contact g3send@gmail.com
